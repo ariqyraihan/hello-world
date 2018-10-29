@@ -51,10 +51,20 @@ You have no idea what are you doing in this life. Why you can't move on; to anot
 
 The darkness now becomes a part of your life. You don't know what to do else. You don't know how to keep yourself alive.  You wanna cry--you can't. You wanna break everything near you--you can. You wanna talk--not everyone wants to listen any stories, and not easy to find a right person. [You wanna move on--but this problem just keeps coming back.](https://medium.com/@narandzhaf)
 
-![example](https://cdn-images-1.medium.com/max/1200/0*lzRmzAy5OICef7rK.png)
+!(https://cdn-images-1.medium.com/max/1200/0*lzRmzAy5OICef7rK.png)
 
 So, we can do this:
 * milk
 * bread
 * butter
   * blue band
+  
+_So tell me, is this a joke?_
+
+No, my friend. There is no joke for depression. And it's not a cheap figure of speech. Because it has different level with stress. And when you have friends feeling like this, embrace them. Listen to them. Because they only need good friends to talk so they will not feel lonely.
+
+_and why I write this? How dare I, write something I don't know?_
+
+No, my friend. I write it down because this the life I've been living for. 
+
+So, it doesn't matter what you judge. If you think this is a shit, please don't read and leave it alone. 
