@@ -51,7 +51,7 @@ You have no idea what are you doing in this life. Why you can't move on; to anot
 
 The darkness now becomes a part of your life. You don't know what to do else. You don't know how to keep yourself alive.  You wanna cry--you can't. You wanna break everything near you--you can. You wanna talk--not everyone wants to listen any stories, and not easy to find a right person. [You wanna move on--but this problem just keeps coming back.](https://medium.com/@narandzhaf)
 
-!(https://cdn-images-1.medium.com/max/1200/0*lzRmzAy5OICef7rK.png)
+![Example](https://cdn-images-1.medium.com/max/1200/0*lzRmzAy5OICef7rK.png)
 
 So, we can do this:
 * milk
