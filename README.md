@@ -44,3 +44,17 @@ When you lost your parents, you also lost a part of you—as I said above. Espec
 You keep believing it, day to day until it makes you crazy. You love to be in the darkness even you refuse to live in the dark world. And you know what is the crazy fact? You try to believe you are gonna be okay, make it balances, live in two sides (because your parents broke up) and sees they starting a new life.
 
 You are happy as they think you are. But, deep inside, you know, it breaks you more. 
+
+> and as it can't stop to grow the craziness is also growing and borns a new level of itself: depression.
+
+You have no idea what are you doing in this life. Why you can't move on; to another dimension which you can forget everything and live happily? Why do you think that you have people around you but nobody cares? Why you live normally but the loneliness is swallowing apart?
+
+The darkness now becomes a part of your life. You don't know what to do else. You don't know how to keep yourself alive.  You wanna cry--you can't. You wanna break everything near you--you can. You wanna talk--not everyone wants to listen any stories, and not easy to find a right person. [You wanna move on--but this problem just keeps coming back.](https://medium.com/@narandzhaf)
+
+!(https://cdn-images-1.medium.com/max/1200/0*lzRmzAy5OICef7rK.png)
+
+So, we can do this:
+* milk
+* bread
+* butter
+  * blue band
